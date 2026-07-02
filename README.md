@@ -1,2 +1,3 @@
 # Get GitHub_badges
-**Contact**: +8801300517025
+**Contact:** **WhatsApp** +8801300517025
+**E-mail:** sabbirislam@gmail.com
